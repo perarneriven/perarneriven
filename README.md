@@ -1,4 +1,5 @@
 ## Hi there 👋
+Im curently try tho find hackers, and online them on favbook twitter like thet///
 
 <!--
 **perarneriven/perarneriven** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
